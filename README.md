@@ -1,1 +1,1 @@
-# JamesClark
+# Sir James Clark connections
